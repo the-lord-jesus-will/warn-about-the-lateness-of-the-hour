@@ -238,7 +238,7 @@
 ![s15](./assets/s15.webp)
 
 Dear Heavenly ***Father***
-You know *everything* about me,
+***You*** know *everything* about me,
 and you know that I’m a *sinner*.
 
 
@@ -249,7 +249,7 @@ I hereby *repent* from all *my sinful ways*.
 
 
 I’m willing to *change with **Your** help*,
-I receive your *forgiveness*, and I pray that ***you** help me*
+I receive ***Your*** *forgiveness*, and I pray that ***You** help me*
 *forgive* those, who have *hurt me*.
 
 
@@ -258,24 +258,232 @@ I know I only receive *forgiveness*, as I *forgive others*.
 
 
 
-Thank You that *Jesus **Christ** died* on the cross for *us all*.
-Thank You that He offers His *righteousness* to me,
+Thank ***You*** that ***Jesus Christ** died* on the cross for *us all*.
+Thank ***You*** that ***He*** offers ***His*** *righteousness* to me,
 and today this very day, I receive that *righteousness*.
 
 
 
-I *hereby* put my *faith* in Him, the ***savior*** of the world.
-So please God have *mercy* on me, a *sinner*.
-***Save me Jesus Christ***, and today this very day,
+I *hereby* put my *faith* in ***Him***, the ***savior*** of the world.
+So please ***God*** have *mercy* on me, a *sinner*.
+Save me ***Jesus Christ***, and today this very day,
 ***I commit my life to you Lord Jesus Christ***.
 
 ![s16](./assets/s16.webp)
+
+You can download the ***Road To Salvation*** in more formats:  [Here](assets\the-road-to-salvation.zip).
 
 ---
 
 ![s19](./assets/s19.webp)
 
-<iframe src="https://player.rss.com/good-old-news/1136487" style="width: 100%" title="Good Old News" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen><a href="https://rss.com/podcasts/good-old-news/1136487/">Romans 8 | RSS.com</a></iframe>
+<iframe src="https://player.rss.com/good-old-news/1137630" style="width: 100%" title="Good Old News" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen><a href="https://rss.com/podcasts/good-old-news/1137630/">Romans 8 | RSS.com</a></iframe>
+
+**1***There* *is* therefore now no condemnation to them which are in Christ Jesus, who walk not after the flesh, but after the Spirit.
+**2**For the law of the Spirit of life in Christ Jesus hath made me free from the law of sin and death.
+**3**For what the law could not do, in that it was weak through the flesh, God sending his own Son in the likeness of sinful flesh, and for sin, condemned sin in the flesh:
+**4**That the righteousness of the law might be fulfilled in us, who walk not after the flesh, but after the Spirit.
+**5**For they that are after the flesh do mind the things of the flesh; but they that are after the Spirit the things of the Spirit.
+**6**For to be carnally minded *is* death; but to be spiritually minded *is* life and peace.
+**7**Because the carnal mind *is* enmity against God: for it is not subject to the law of God, neither indeed can be.
+**8**So then they that are in the flesh cannot please God.
+**9**But ye are not in the flesh, but in the Spirit, if so be that the Spirit of God dwell in you. Now if any man have not the Spirit of Christ, he is none of his.
+**10**And if Christ *be* in you, the body *is* dead because of sin; but the Spirit *is* life because of righteousness.
+**11**But if the Spirit of him that raised up Jesus from the dead dwell in you, he that raised up Christ from the dead shall also quicken your mortal bodies by his Spirit that dwelleth in you.
+**12**Therefore, brethren, we are debtors, not to the flesh, to live after the flesh.
+**13**For if ye live after the flesh, ye shall die: but if ye through the Spirit do mortify the deeds of the body, ye shall live.
+**14**For as many as are led by the Spirit of God, they are the sons of God.
+**15**For ye have not received the spirit of bondage again to fear; but ye have received the Spirit of adoption, whereby we cry, Abba, Father.
+**16**The Spirit itself beareth witness with our spirit, that we are the children of God:
+**17**And if children, then heirs; heirs of God, and joint-heirs with Christ; if so be that we suffer with *him*, that we may be also glorified together.
+**18**For I reckon that the sufferings of this present time *are* not worthy *to* *be* *compared* with the glory which shall be revealed in us.
+**19**For the earnest expectation of the creature waiteth for the manifestation of the sons of God.
+**20**For the creature was made subject to vanity, not willingly, but by reason of him who hath subjected *the* *same* in hope,
+**21**Because the creature itself also shall be delivered from the bondage of corruption into the glorious liberty of the children of God.
+**22**For we know that the whole creation groaneth and travaileth in pain together until now.
+**23**And not only *they*, but ourselves also, which have the firstfruits of the Spirit, even we ourselves groan within ourselves, waiting for the adoption, *to* *wit*, the redemption of our body.
+**24**For we are saved by hope: but hope that is seen is not hope: for what a man seeth, why doth he yet hope for?
+**25**But if we hope for that we see not, *then* do we with patience wait for *it*.
+**26**Likewise the Spirit also helpeth our infirmities: for we know not what we should pray for as we ought: but the Spirit itself maketh intercession for us with groanings which cannot be uttered.
+**27**And he that searcheth the hearts knoweth what *is* the mind of the Spirit, because he maketh intercession for the saints according to *the* *will* *of* God.
+**28**And we know that all things work together for good to them that love God, to them who are the called according to *his* purpose.
+**29**For whom he did foreknow, he also did predestinate *to* *be* conformed to the image of his Son, that he might be the firstborn among many brethren.
+**30**Moreover whom he did predestinate, them he also called: and whom he called, them he also justified: and whom he justified, them he also glorified.
+**31**What shall we then say to these things? If God *be* for us, who *can* *be* against us?
+**32**He that spared not his own Son, but delivered him up for us all, how shall he not with him also freely give us all things?
+**33**Who shall lay any thing to the charge of God’s elect? *It* *is* God that justifieth.
+**34**Who *is* he that condemneth? *It* *is* Christ that died, yea rather, that is risen again, who is even at the right hand of God, who also maketh intercession for us.
+**35**Who shall separate us from the love of Christ? *shall* tribulation, or distress, or persecution, or famine, or nakedness, or peril, or sword?
+**36**As it is written, For thy sake we are killed all the day long; we are accounted as sheep for the slaughter.
+**37**Nay, in all these things we are more than conquerors through him that loved us.
+**38**For I am persuaded, that neither death, nor life, nor angels, nor principalities, nor powers, nor things present, nor things to come,
+**39**Nor height, nor depth, nor any other creature, shall be able to separate us from the love of God, which is in Christ Jesus our Lord.
+
+---
+
+![s20](./assets/s20.webp)
+
+<iframe src="https://player.rss.com/good-old-news/1137626" style="width: 100%" title="Good Old News" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen><a href="https://rss.com/podcasts/good-old-news/1137626/">Psalm 27 | RSS.com</a></iframe>
+
+*A* *Psalm* of David.
+
+**1**The LORD *is* my light and my salvation; whom shall I fear? the LORD *is* the strength of my life; of whom shall I be afraid?
+**2**When the wicked, *even* mine enemies and my foes, came upon me to eat up my flesh, they stumbled and fell.
+**3**Though an host should encamp against me, my heart shall not fear: though war should rise against me, in this *will* I *be* confident.
+**4**One *thing* have I desired of the LORD, that will I seek after; that I may dwell in the house of the LORD all the days of my life, to behold the beauty of the LORD, and to enquire in his temple.
+**5**For in the time of trouble he shall hide me in his pavilion: in the secret of his tabernacle shall he hide me; he shall set me up upon a rock.
+**6**And now shall mine head be lifted up above mine enemies round about me: therefore will I offer in his tabernacle sacrifices of joy; I will sing, yea, I will sing praises unto the LORD.
+**7**Hear, O LORD, *when* I cry with my voice: have mercy also upon me, and answer me.
+**8***When* *thou* *saidst*, Seek ye my face; my heart said unto thee, Thy face, LORD, will I seek.
+**9**Hide not thy face *far* from me; put not thy servant away in anger: thou hast been my help; leave me not, neither forsake me, O God of my salvation.
+**10**When my father and my mother forsake me, then the LORD will take me up.
+**11**Teach me thy way, O LORD, and lead me in a plain path, because of mine enemies.
+**12**Deliver me not over unto the will of mine enemies: for false witnesses are risen up against me, and such as breathe out cruelty.
+**13***I* *had* *fainted*, unless I had believed to see the goodness of the LORD in the land of the living.
+**14**Wait on the LORD: be of good courage, and he shall strengthen thine heart: wait, I say, on the LORD.
+
+---
+
+![s21](./assets/s21.webp)
+
+<iframe src="https://player.rss.com/good-old-news/1137628" style="width: 100%" title="Good Old News" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen><a href="https://rss.com/podcasts/good-old-news/1137628/">Psalm 91 | RSS.com</a></iframe>
+
+**1**He that dwelleth in the secret place of the most High shall abide under the shadow of the Almighty.
+**2**I will say of the LORD, *He* *is* my refuge and my fortress: my God; in him will I trust.
+**3**Surely he shall deliver thee from the snare of the fowler, *and* from the noisome pestilence.
+**4**He shall cover thee with his feathers, and under his wings shalt thou trust: his truth *shall* *be* *thy* shield and buckler.
+**5**Thou shalt not be afraid for the terror by night; *nor* for the arrow *that* flieth by day;
+**6***Nor* for the pestilence *that* walketh in darkness; *nor* for the destruction *that* wasteth at noonday.
+**7**A thousand shall fall at thy side, and ten thousand at thy right hand; *but* it shall not come nigh thee.
+**8**Only with thine eyes shalt thou behold and see the reward of the wicked.
+**9**Because thou hast made the LORD, *which* *is* my refuge, *even* the most High, thy habitation;
+**10**There shall no evil befall thee, neither shall any plague come nigh thy dwelling.
+**11**For he shall give his angels charge over thee, to keep thee in all thy ways.
+**12**They shall bear thee up in *their* hands, lest thou dash thy foot against a stone.
+**13**Thou shalt tread upon the lion and adder: the young lion and the dragon shalt thou trample under feet.
+**14**Because he hath set his love upon me, therefore will I deliver him: I will set him on high, because he hath known my name.
+**15**He shall call upon me, and I will answer him: I *will* *be* with him in trouble; I will deliver him, and honour him.
+**16**With long life will I satisfy him, and shew him my salvation.
+
+---
+
+You can use our bible: [Here](https://caught-up.net/bible/index.html).
+
+
+
+Or download it at one of these links:
+
+Download Locations: 
+![download-32](./assets/download-32.webp) [First Location](https://drive.google.com/file/d/12claUn5wws8BNZ15TrtzrjkHqA6AjI_W/view?usp=sharing) ![download-32](./assets/download-32.webp)
+![download-32](./assets/download-32.webp) [Second Location](https://drive.google.com/file/d/1nIob4Lk8895arc1_rpdLj4Nz3uKY1JSI/view?usp=sharing) ![download-32](./assets/download-32.webp)
+![download-32](./assets/download-32.webp) [Third Location](https://drive.google.com/file/d/12GOanEAg04X7tkq3dVH9Z7wF0yHC81pB/view?usp=sharing) ![download-32](./assets/download-32.webp)
+![download-32](./assets/download-32.webp) [Forth Location](https://drive.google.com/file/d/1ZIA2dnyxV4hOm00BzIZQzxnrKAkR0C04/view?usp=sharing)  ![download-32](./assets/download-32.webp)
+
+---
+
+![lk-1](./assets/lk-1-1695388205247-4.webp)
+
+[Website](https://www.jdfarag.org/)
+[YouTube](https://www.youtube.com/@JDFaragTV)
+
+---
+
+![lk-2](./assets/lk-2-1694374231772-35-1695388205246-3.webp)
+
+[WebSite](https://watchmanriver.org/)
+[YouTube](https://www.youtube.com/@WatchmanRiver)
+
+---
+
+![lk-3](./assets/lk-3-1695388205247-6.webp)
+
+[YouTube](https://www.youtube.com/@FaithInTheFire777)
+
+---
+
+![lk-4](./assets/lk-4-1695388205247-5.webp)
+
+[Blog 4 encouragements](https://encouragemen.blog/blog/)
+
+---
+
+![lk-5](./assets/lk-5-1695388205247-7.webp)
+
+[YouTube](https://www.youtube.com/@Generation2434)
+
+---
+
+![lk-6](./assets/lk-6-1695388205247-8.webp)
+
+[YouTube](https://www.youtube.com/@LastDaysAWAKENING)
+
+---
+
+![lk-7](./assets/lk-7-1695388205247-10.webp)
+
+[BitChute](https://www.bitchute.com/channel/hke6emnNyvWj/)
+
+---
+
+![lk8](./assets/lk8-1695388205247-9.webp)
+
+[WebSite](https://www.rev310.net/)
+
+---
+
+![lk-9](./assets/lk-9-1695388205247-11.webp)
+
+[Dean Odle](https://www.deanodle.org/)
+
+---
+
+![lk-10](./assets/lk-10-1695388205247-12.webp)
+
+[Jesus Encounter Ministries](https://www.jesusencounterministries.com/)
+[YouTube](https://www.youtube.com/channel/UCmMLO7vxbA78hTr6EgguIYA)
+
+---
+
+![lk-11](./assets/lk-11-1695388205247-13.webp)
+
+[Omega Dynamics](https://www.omegadynamics.org/)
+[Buffalo Base Camp](https://www.calicobuffalobasecamp.com/)
+[YouTube](https://www.youtube.com/@jamiewalden756)
+
+---
+
+![lk-12](./assets/lk-12-1695388205247-15.webp)
+
+[richiefromboston.tv](https://richiefromboston.tv/)
+[BitChute](https://www.bitchute.com/channel/juH53r3AyWVW/)
+[TikTok](https://www.tiktok.com/@richiefromboston)
+
+---
+
+![lk-13](./assets/lk-13-1695388205247-14.webp)
+
+[YouTube](https://www.youtube.com/@jasonzelda/featured)
+
+---
+
+![lk-14](./assets/lk-14-1695388205247-16.webp)
+
+[thelastreformation.com](https://thelastreformation.com/)
+[Map](https://map.thelastreformation.com/#)
+[YouTube](https://www.youtube.com/@TheLastReformation)
+[Friends of Torben](https://friendsoftorben.com/)
+
+---
+
+![lk-15](./assets/lk-15-1695388205247-17.webp)
+
+[BitChute](https://www.bitchute.com/channel/OVxXA0uDWdVr/)
+
+---
+
+![lk-16](./assets/lk-16-1695388205247-18.webp)
+
+[YouTube](https://www.youtube.com/@pastorcaryschmidt)
 
 ---
 
